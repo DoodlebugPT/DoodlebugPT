@@ -14,7 +14,7 @@ Basic DNI criteria (please look it up ^^)
 
 Proshippers
 
-Ships in general (by that, I mean shipping your avatar/character with me/my pony personally.) also shipcourse DNI! I am very uncomfortable with the topic of shipping in general, and would rather not discuss it. 
+Ships in general (by that, I mean shipping your avatar/character with me/my pony personally.) also shipping discourse DNI! I am very uncomfortable with the topic of shipping in general, and would rather not discuss it. 
 
 S/H jokes, suicide jokes, slurs (ESPECIALLY ones you can’t reclaim).
 

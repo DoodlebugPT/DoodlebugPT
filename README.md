@@ -6,7 +6,7 @@ Hiya, my name is Bug! I made this profile for Ponytown! ^^ Below is a basic over
 
 DISCLAIMER:
 
-I refuse to harass anyone. Instead, I tend to hide people if they or their beliefs/interests make me uncomfortable, and that way no one gets hurt. The world needs less suffering.
+I refuse to harass anyone. Instead, I tend to block/hide people if they or their beliefs/interests make me uncomfortable, and that way no one gets hurt. The world needs less suffering.
 
 DNI:
 

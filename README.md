@@ -20,7 +20,7 @@ S/H jokes, suicide jokes, slurs (ESPECIALLY ones you can’t reclaim).
 
 People 20+ UNLESS I ALREADY KNOW YOU OR HAVE YOU FRIENDED. 
 
-Romantic intent/s3xu4l behavior. Even if you mean it as a joke, it makes me extremely uncomfortable!
+Romantic intent/s3xu4l behavior. Even if you mean it as a joke, it makes me extremely uncomfortable! I also do not want to date anyone, I am very uncomfortable with romance as a whole.
 
 I hide/block freely, and will not hesitate to hide you if you break my boundaries or make me uncomfortable. 
 
@@ -45,13 +45,13 @@ Pokémon, TADC, Billie Bust Up, Kid Icarus Uprising, ENA, Raggedy Ann, Dandy’s
 
 I am in a lot of fandoms, so I likely forgot some. If you’re curious about whether I’m in any other fandoms, feel free to ask! ^^
 
-I like interacting with people from my fandoms, or with people who are generally friendly, but I am a bit socially awkward and can be a bit nervous at first. I’d appreciate it if you'd use tone tags around me, but it’s not required! ^^
+I like interacting with people from my fandoms, or with people who are generally friendly, but I am a bit socially awkward and can be a bit nervous at first. I'd really appreciate if you use tone tags around me, it helps a lot.
  
 I’m generally cool with C+H, but please don’t entirely cover me! ^^
 
 ALSO! I do not accept friend requests on Ponytown often unless I’ve interacted with you before or if I trust you. If you’d like to add me, I’d appreciate it if you asked me via a Ponytown whisper since my requests are off most of the time, and I selectively re-enable them. ^^
 
-Any more questions? Whisper them to me on Ponytown!
+Any questions? Whisper them to me on Ponytown!
 
 If you read this far, whisper me a 🐛 on Ponytown! /nf ^^ have a good day :D
 

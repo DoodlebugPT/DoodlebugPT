@@ -10,7 +10,7 @@ I refuse to harass anyone. Instead, I tend to block/hide people if they or their
 
 DNI:
 
-Basic DNI criteria (please look it up ^^)
+Basic DNI criteria (https://dni-criteria.carrd.co/)
 
 Proshippers
 

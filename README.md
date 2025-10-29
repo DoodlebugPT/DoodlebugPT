@@ -8,6 +8,8 @@ DISCLAIMER:
 
 I refuse to harass anyone. Instead, I tend to block/hide people if they or their beliefs/interests make me uncomfortable, and that way no one gets hurt. The world needs less suffering.
 
+PLEASE tell me if I've done something that makes you uncomfortable so I can know what I did and learn from it. I don't want to make anyone feel unsafe.
+
 DNI:
 
 Basic DNI criteria (https://dni-criteria.carrd.co/)

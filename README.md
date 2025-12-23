@@ -1,6 +1,5 @@
-REVAMPED PROFILE RAAAAAHHHH
-
-I fixed some formatting issues and added/updated information! 
+I GOTTA REMAKE THIS DHJDNXHSJXJDBZJSK
+the info is MOSTLY up to date...
 
 Hiya, my name is Bug! I made this profile for Ponytown! ^^ Below is a basic overview and a DNI list, please read before interacting!
 

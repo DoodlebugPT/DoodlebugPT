@@ -1,13 +1,18 @@
-I GOTTA REMAKE THIS DHJDNXHSJXJDBZJSK
-the info is MOSTLY up to date...
+Please read before interacting!
 
-Hiya, my name is Bug! I made this profile for Ponytown! ^^ Below is a basic overview and a DNI list, please read before interacting!
+BYI:
 
-DISCLAIMER:
-
-I refuse to harass anyone. Instead, I tend to block/hide people if they or their beliefs/interests make me uncomfortable, and that way no one gets hurt. The world needs less suffering.
+I refuse to harass anyone. Instead, I tend to block/hide people if they or their beliefs/interests make me uncomfortable, and that way no one gets hurt. 
 
 PLEASE tell me if I've done something that makes you uncomfortable so I can know what I did and learn from it. I don't want to make anyone feel unsafe.
+
+I struggle with tone sometimes. I'd appreciate the use of tone tags and I will gladly do the same if you'd like. 
+
+IWC if meeting me for the first few times. New ppl make me nervous.
+
+DO NOT INVOLVE ME IN DRAMA OR ASK ME TO PICK SIDES. 
+
+My friend requests are off by default for internet safety and personal comfort. I will likely only add ppl as friends if we've interacted a decent amount of times.
 
 DNI:
 
@@ -15,7 +20,9 @@ Basic DNI criteria (https://dni-criteria.carrd.co/)
 
 Proshippers
 
-Ships in general (by that, I mean shipping your avatar/character with me/my pony personally.) also shipping discourse DNI! I am very uncomfortable with the topic of shipping in general, and would rather not discuss it. 
+Ships in general (by that, I mean shipping your avatar/character with me/my pony personally.) 
+
+Shipping discourse DNI! I am very uncomfortable with the topic of shipping in general, and would rather not discuss it. 
 
 S/H jokes, suicide jokes, slurs (ESPECIALLY ones you can’t reclaim).
 
@@ -30,27 +37,11 @@ If you don’t like my boundaries, feel free to
 1. Block me, or
 2. Refrain from interacting with me.
 
-Basic overview of my nametags on Ponytown!
-
-W2i: Whisper to interact. If this is in my name, I CANNOT SEE YOUR MESSAGES UNLESS YOU WHISPER. I’m likely offtab or just not paying close attention to the screen if this is in my name.
-
-IWC: Interact with care. If this is in my name, I’m probably jittery and would prefer if you do not come at me too strong with spam boops, kiss emotes, lots of messages, etc. 
-
-SV: Semi verbal. I likely won’t talk much if this is in my name, and will likely use emoticons, emojis, or ingame emotes to communicate. ^~^
-
-COMF: The pony I’m playing as is my comfort character!
-
 Here are some of my fandoms:
 
-Pokémon, TADC, Billie Bust Up, Kid Icarus Uprising, ENA, Raggedy Ann, Dandy’s World, Splatoon, Sonic, Bloodmoney, Murder Drones, Yaelokre
+Pokémon (games and Indigo League) TADC, Billie Bust Up, Kid Icarus Uprising, ENA, Raggedy Ann, Dandy’s World, Splatoon, Bloodmoney, Murder Drones
 
 I am in a lot of fandoms, so I likely forgot some. If you’re curious about whether I’m in any other fandoms, feel free to ask! ^^
-
-I like interacting with people from my fandoms, or with people who are generally friendly, but I am a bit socially awkward and can be a bit nervous at first. I'd really appreciate if you use tone tags around me, it helps a lot.
- 
-I’m generally cool with C+H, but please don’t entirely cover me! ^^
-
-ALSO! I do not accept friend requests on Ponytown often unless I’ve interacted with you before or if I trust you. If you’d like to add me, I’d appreciate it if you asked me via a Ponytown whisper since my requests are off most of the time, and I selectively re-enable them. ^^
 
 Any questions? Whisper them to me on Ponytown!
 

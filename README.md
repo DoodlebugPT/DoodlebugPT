@@ -26,6 +26,8 @@ Shipping discourse DNI! I am very uncomfortable with the topic of shipping in ge
 
 S/H jokes, suicide jokes, slurs (ESPECIALLY ones you can’t reclaim).
 
+Mean spirited jokes/rude/mean people in general
+
 People 20+ UNLESS I ALREADY KNOW YOU OR HAVE YOU FRIENDED. 
 
 Romantic intent/s3xu4l behavior. Even if you mean it as a joke, it makes me extremely uncomfortable! I also do not want to date anyone, I am very uncomfortable with romance as a whole.

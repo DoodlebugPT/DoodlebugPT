@@ -10,6 +10,8 @@ I struggle with tone sometimes. I'd appreciate the use of tone tags and I will g
 
 IWC if meeting me for the first few times. New ppl make me nervous.
 
+I love helping people but please ask before venting!
+
 DO NOT INVOLVE ME IN DRAMA OR ASK ME TO PICK SIDES. 
 
 My friend requests are off by default for internet safety and personal comfort. I will likely only add ppl as friends if we've interacted a decent amount of times.

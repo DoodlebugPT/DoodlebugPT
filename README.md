@@ -29,7 +29,7 @@ Important info below, please read before interacting!
 
 🪽₊˚ ✧ ━━━━⊱IMPORTANT/BYF⊰━━━━ ✧ ₊˚ 🎭
 
-🪽I genuinely adore caring for people, my friends in particular! I am the self proclaimed "mom/big sis" friend, as it were 
+🪽I genuinely adore caring for people, my friends in particular! I am the self proclaimed "mom/big sister" friend, as it were 
 
 🎭 I like talking but sometimes struggle with tone and I can be awkward at times! Please be patient! Tone tags are appreciated. :)
 

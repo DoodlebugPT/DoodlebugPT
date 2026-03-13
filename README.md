@@ -23,6 +23,7 @@ Important info below, please read before interacting!
 
 ❌ People over 20 y/o unless I already know you 
 
+❌ Skin copiers. I work hard on my ponies. Please, PLEASE look for inspiration elsewhere.
 
 🪽🪽🪽🪽🪽🪽₊˚ ✧ ━━━━⊱IMPORTANT/BYF⊰━━━━ ✧ ₊˚ 🎭🎭🎭🎭🎭🎭
 
@@ -31,6 +32,13 @@ Important info below, please read before interacting!
 
 🪽 I like talking but sometimes struggle with tone and I can be awkward at times! Please be patient! Tone tags are appreciated. :)
 
-🎭 I like caring for people, my friends in particular! 
+🎭 I genuinely adore caring for people, my friends in particular! 
 
 🪽 IWC the first couple of times you see me! New people make me nervous.
+
+🎭 DO NOT INVOLVE ME IN DRAMA OR FORCE ME TO PICK SIDES.
+
+🪽 Friend requests are off by default for my personal comfort! I'd prefer to get to know someone before friending them. If you wanna add me please ask :)
+
+🎭 If I do something that makes you uncomfortable, please let me know so I can learn from my mistake. I don't want to make anyone feel unsafe and I would much rather know if I upset someone.
+

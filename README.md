@@ -1,6 +1,8 @@
 Nice to meetcha! You can call me ENA, Pit, or Bug (in order of likeness)! 
 Important info below, please read before interacting!
 
+
+
 🪽🪽🪽🪽🪽🪽₊˚ ✧ ━━━━⊱DNI⊰━━━━ ✧ ₊˚ 🎭🎭🎭🎭🎭🎭
 
                     
@@ -27,10 +29,9 @@ Important info below, please read before interacting!
 
 🪽🪽🪽🪽🪽🪽₊˚ ✧ ━━━━⊱IMPORTANT/BYF⊰━━━━ ✧ ₊˚ 🎭🎭🎭🎭🎭🎭
 
+🪽I genuinely adore caring for people, my friends in particular! I am the self proclaimed "mom/big sis" friend, as it were 
 
-🪽 I like talking but sometimes struggle with tone and I can be awkward at times! Please be patient! Tone tags are appreciated. :)
-
-🎭 I genuinely adore caring for people, my friends in particular! 
+🎭 I like talking but sometimes struggle with tone and I can be awkward at times! Please be patient! Tone tags are appreciated. :)
 
 🪽 IWC the first couple of times you see me! New people make me nervous.
 

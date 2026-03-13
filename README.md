@@ -2,6 +2,7 @@ Nice to meetcha! You can call me ENA, Pit, or Bug (in order of likeness)!
 Important info below, please read before interacting!
 
 🪽🪽🪽🪽🪽🪽₊˚ ✧ ━━━━⊱DNI⊰━━━━ ✧ ₊˚ 🎭🎭🎭🎭🎭🎭
+
                     
                          
 ❌ Basic DNI criteria (https://dni-criteria.carrd.co/)
@@ -22,7 +23,9 @@ Important info below, please read before interacting!
 
 ❌ People over 20 y/o unless I already know you 
 
+
 🪽🪽🪽🪽🪽🪽₊˚ ✧ ━━━━⊱IMPORTANT/BYF⊰━━━━ ✧ ₊˚ 🎭🎭🎭🎭🎭🎭
+
 
                 
 

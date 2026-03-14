@@ -53,11 +53,11 @@ Important info below, please read before interacting!
 
 Special interests (FAVE INTERESTS EVERRRRR)
 
-ENA (animated series), Kid Icarus Uprising, Pokemon, creating art!
+ENA (animated series), Kid Icarus Uprising, Pokémon (mainline games and Indigo League), creating art!
 
 Fandoms (no particular order)
 
-Bloodmoney/Human Expenditure Program (LOVEMONEY FANS DNI), TADC, Splatoon, Raggedy Ann, Murder Drones, Stranger Things, ENA Dream BBQ, Billie Bust Up, The Gaslight District, Parappa, FNF
+Bloodmoney/Human Expenditure Program (LOVEMONEY FANS DNI), TADC, Splatoon, Raggedy Ann, Murder Drones, Stranger Things, ENA Dream BBQ, Billie Bust Up, The Gaslight District, Parappa, FNF, Super Smash Brothers (Brawl and Ultimate but especially Brawl)
 
 I likely have more, I'm just tired and I forget them easily...Feel free to ask if I'm in one!
 

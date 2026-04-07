@@ -1,4 +1,4 @@
-Nice to meetcha! You can call me Pit, ENA, or Bug (in order of likeness)! 
+Nice to meetcha! You can call me Pit or ENA! More info in my pronouns cc :D
 Important info below, please read before interacting!
 
 
